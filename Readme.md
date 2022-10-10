@@ -66,6 +66,6 @@ https://www.youtube.com/watch?v=4pKO6BDggbg
 
 - Who is going to Drs can have lunch at near the beach instead of canteene
 
-https://www.google.com/maps/uv?pb=!1s0x47c5f1704a677343%3A0x4cce27333c1ec7a5!3m1!7e115!4shttps%3A%2F%2Flh5.googleusercontent.com%2Fp%2FAF1QipModNLFh8eGjfAdV8U9lJzMnN7nOkLGyocd59GP%3Dw284-h160-k-no!5sDe%20Liefhebbers%20aan%20Zee%2C%20Zeepad%204%2C%201949%20EH%20Wijk%20aan%20Zee%2C%20Netherlands%20-%20Google%20Search!15sCgIgAQ&imagekey=!1e10!2sAF1QipModNLFh8eGjfAdV8U9lJzMnN7nOkLGyocd59GP&hl=en&sa=X&ved=2ahUKEwjgqavI89T6AhUJM-wKHZEPClUQoip6BQilARAD
+https://tinyurl.com/59hv7k69
 
 https://tinyurl.com/exrr28vw
