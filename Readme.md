@@ -1,5 +1,15 @@
 # Netherlands trip 11/10 - 14/10
 
+## Car rental
+
+The cars are registered at Avis rental you can check your reservation on https://www.avis.com/en/reservation#/manage 
+
+The drivers can go get the cars while the others get something from the MC across the road :D 
+
+https://tinyurl.com/m5a89nw3
+
+https://www.avis.com/en/reservation#/manage
+
 ## Tuesday 11/10
 
 ### Eindhoven -> Son -> Tillburg(The Sting headquarters) -> Van der valk Utrecht
