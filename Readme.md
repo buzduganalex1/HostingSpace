@@ -52,7 +52,7 @@ https://www.youtube.com/watch?v=yMS0EGEEYMA
 
 https://tinyurl.com/mr3evztz
 
-- Rottemeren park 20 min from Centric mordrecth office
+- Rottemeren park 20 min from Centric mordrecth office (We can see an windmill if the weather is nice since kinderdijk is 16 euro per person and you have to make reservation)
 
 https://www.youtube.com/watch?v=w9kVOP9aCCA
 
