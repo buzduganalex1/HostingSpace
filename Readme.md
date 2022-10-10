@@ -43,3 +43,7 @@ https://tinyurl.com/5c3da2b5
 ### Novotel -> Eindhoven airport
 
 https://tinyurl.com/4xyharaa
+
+## Side activities and things to consider (This list of ideeas applies only if there is extra time)
+
+
