@@ -52,6 +52,12 @@ https://www.youtube.com/watch?v=yMS0EGEEYMA
 
 https://tinyurl.com/mr3evztz
 
+- Rottemeren park 20 min from Centric mordrecth office
+
+https://www.youtube.com/watch?v=w9kVOP9aCCA
+
+https://tinyurl.com/yc8c8zdy
+
 - Antwerp Cathedral of our lady (On friday leaving)
 
 https://www.youtube.com/watch?v=btB12-O8Ky4
