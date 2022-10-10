@@ -8,8 +8,6 @@ The drivers can go get the cars while the others get something from the MC acros
 
 https://tinyurl.com/m5a89nw3
 
-https://www.avis.com/en/reservation#/manage
-
 ## Tuesday 11/10
 
 ### Eindhoven -> Son -> Tillburg(The Sting headquarters) -> Van der valk Utrecht
