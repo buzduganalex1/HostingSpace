@@ -37,3 +37,9 @@ https://tinyurl.com/3b7b5p2u
 ### Green park hotel -> Centric oostkamp -> Carrefour hypermarket Oostakker -> Antwerp/Ghent(visit) -> Eindhoven Novotel
 
 https://tinyurl.com/5c3da2b5
+
+## Saturday 15/10
+
+### Novotel -> Eindhoven airport
+
+https://tinyurl.com/4xyharaa
