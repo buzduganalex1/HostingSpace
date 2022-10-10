@@ -16,3 +16,11 @@ https://tinyurl.com/3m3cvn9k
 
 Parking near Aldi (Paid)
 https://tinyurl.com/3a69btzr
+
+## Wednesday 11/10
+
+### Utrecht -> Detailresult HQ Beverwijk -> Centric Moordrecht -> Utrecht 
+https://tinyurl.com/mr32b6kn
+
+### Utrecht -> Centric Moordrecht -> Utrecht (For who is not going to DRS)
+https://tinyurl.com/5dn6uknx
