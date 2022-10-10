@@ -46,4 +46,14 @@ https://tinyurl.com/4xyharaa
 
 ## Side activities and things to consider (This list of ideeas applies only if there is extra time)
 
+- Short visit to Slot Zeist (15 min from hotel) which is a nice park, lake and area with a casstle 
 
+https://www.youtube.com/watch?v=yMS0EGEEYMA 
+
+- Antwerp Cathedral of our lady (On friday leaving)
+
+https://www.youtube.com/watch?v=btB12-O8Ky4
+https://www.youtube.com/watch?v=4pKO6BDggbg
+
+
+https://tinyurl.com/mr3evztz
